@@ -1,0 +1,5 @@
+![image](https://github.com/RiteshY098/MovieApp/assets/86614628/4874b5f3-133d-48be-a079-845255833a00)
+![image](https://github.com/RiteshY098/MovieApp/assets/86614628/fb103902-f3b5-478c-ad65-250fd414afcc)
+![image](https://github.com/RiteshY098/MovieApp/assets/86614628/42e9f7b2-14e1-4c59-b298-7d6e7fd3c2f4)
+![image](https://github.com/RiteshY098/MovieApp/assets/86614628/f8cc66cf-10c0-45d1-a5f8-ec26109264b2)
+![image](https://github.com/RiteshY098/MovieApp/assets/86614628/810847cf-54d7-40a6-8a64-5210ef14aff7)
